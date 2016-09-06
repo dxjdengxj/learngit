@@ -1,1 +1,1 @@
-jin tian shi ge hao tian qi.
+jin tian shi ge hao tian qi. wo men yi qi chu qu wan.
